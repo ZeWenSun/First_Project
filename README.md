@@ -1,2 +1,2 @@
 # First_Project
-welcome to zhazhamanong home！
+welcome to zhazhamanong home！I try to do something!
